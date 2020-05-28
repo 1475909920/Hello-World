@@ -1,2 +1,2 @@
 # Hello-World
-没有描述哦
+Hahaha, please give me more advice when using this software for the first time
